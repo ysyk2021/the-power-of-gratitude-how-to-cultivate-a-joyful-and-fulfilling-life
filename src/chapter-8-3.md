@@ -1,4 +1,4 @@
-Chapter 3: Strategies for Staying Motivated and Engaged in the Gratitude Practice
+Strategies for Staying Motivated and Engaged in the Gratitude Practice
 =================================================================================
 
 In this chapter, we will explore strategies and tips for staying motivated and engaged in your gratitude practice. Cultivating a grateful mindset requires consistent effort and commitment, and these techniques will help you maintain your enthusiasm and reap the full benefits of gratitude in your life.

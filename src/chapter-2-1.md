@@ -1,4 +1,4 @@
-Chapter: Understanding What Gratitude Is and Why It Matters
+Understanding What Gratitude Is and Why It Matters
 ===========================================================
 
 Gratitude is a powerful emotion that has the potential to transform our lives and cultivate a sense of joy, fulfillment, and well-being. In this chapter, we will explore what gratitude is, its significance, and why it matters. Let's dive into understanding the essence of gratitude:

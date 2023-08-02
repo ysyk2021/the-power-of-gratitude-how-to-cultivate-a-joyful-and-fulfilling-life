@@ -1,4 +1,4 @@
-Chapter: Strategies for Staying Consistent and Making Gratitude a Habit
+Strategies for Staying Consistent and Making Gratitude a Habit
 =======================================================================
 
 In this chapter, we will explore effective strategies for staying consistent with gratitude practice and making it a habit in our daily lives. By implementing these strategies, we can cultivate a joyful and fulfilling life infused with the power of gratitude.

@@ -1,4 +1,4 @@
-Chapter: Tips for Practicing Empathy and Kindness in Daily Life
+Tips for Practicing Empathy and Kindness in Daily Life
 ===============================================================
 
 In this chapter, we will explore practical tips for cultivating empathy and kindness in our daily lives. These simple yet powerful practices can bring about positive change in our relationships, communities, and overall well-being. Let's dive into the tips for practicing empathy and kindness:

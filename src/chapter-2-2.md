@@ -1,4 +1,4 @@
-Chapter: Techniques for Exploring the Benefits of Gratitude on Mental and Physical Health
+Techniques for Exploring the Benefits of Gratitude on Mental and Physical Health
 =========================================================================================
 
 In this chapter, we will explore various techniques for harnessing the benefits of gratitude on mental and physical health. By incorporating these techniques into your daily routine, you can experience the transformative impact of gratitude on your overall well-being. Let's dive into the techniques for exploring the benefits of gratitude:

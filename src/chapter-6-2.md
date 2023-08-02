@@ -1,4 +1,4 @@
-Chapter: Techniques for Showing Gratitude and Love to Oneself
+Techniques for Showing Gratitude and Love to Oneself
 =============================================================
 
 In this chapter, we will explore various techniques for showing gratitude and love to oneself. Cultivating these practices can lead to a joyful and fulfilling life. By appreciating and valuing ourselves, we enhance our overall well-being and create a positive impact on our mental, emotional, and physical health.

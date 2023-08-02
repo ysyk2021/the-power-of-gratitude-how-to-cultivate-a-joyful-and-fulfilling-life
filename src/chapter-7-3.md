@@ -1,4 +1,4 @@
-Chapter: Tips for Inspiring Others to Cultivate a Gratitude Practice
+Tips for Inspiring Others to Cultivate a Gratitude Practice
 ====================================================================
 
 In this chapter, we will explore effective tips and strategies for inspiring others to cultivate a gratitude practice. Sharing the power of gratitude with those around us can create a ripple effect of positivity and transform lives. By implementing these techniques, you can help others embark on their journey towards a joyful and fulfilling life.

@@ -1,4 +1,4 @@
-Chapter: Techniques for Building Resilience and Positive Reframing
+Techniques for Building Resilience and Positive Reframing
 ==================================================================
 
 In this chapter, we will explore various techniques for building resilience and cultivating positive reframing through the practice of gratitude. These techniques will empower you to navigate challenges with strength, optimism, and a renewed sense of gratitude. Let's delve into the strategies for building resilience and positive reframing:
