@@ -1,5 +1,3 @@
-Overview of the Benefits of Developing a Gratitude Practice
-====================================================================
 
 Having a gratitude practice is more than simply saying "thank you" or expressing appreciation occasionally. It is a transformative approach to life that can bring numerous benefits and positively impact our overall well-being. In this chapter, we will explore the wide-ranging benefits of developing a gratitude practice and how it can cultivate a joyful and fulfilling life.
 

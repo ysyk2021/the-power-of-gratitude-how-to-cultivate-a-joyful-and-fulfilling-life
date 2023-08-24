@@ -1,5 +1,3 @@
-Techniques for Showing Gratitude to Loved Ones, Colleagues, and Strangers
-==================================================================================
 
 In this chapter, we will explore various techniques for expressing gratitude to our loved ones, colleagues, and even strangers. These practices can deepen connections, foster positivity, and create a culture of appreciation. Let's delve into the techniques for showing gratitude:
 

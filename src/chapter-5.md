@@ -1,5 +1,3 @@
-Chapter 4: Finding Gratitude in Challenges and Adversity
-========================================================
 
 In this chapter, we will explore the challenges and obstacles that can arise when cultivating a gratitude practice and strategies for finding gratitude in difficult situations and adversity. We will also discuss techniques for building resilience and positive reframing to help us find gratitude and joy even in challenging times.
 

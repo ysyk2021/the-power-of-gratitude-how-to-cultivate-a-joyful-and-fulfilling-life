@@ -1,5 +1,3 @@
-Chapter 1: Understanding Gratitude and Its Benefits
-===================================================
 
 In this chapter, we will explore the concept of gratitude, its benefits, and techniques for exploring those benefits. We'll also provide tips for adopting a gratitude mindset to experience greater happiness and fulfillment.
 

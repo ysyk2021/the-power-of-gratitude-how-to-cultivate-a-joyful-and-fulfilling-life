@@ -1,4 +1,3 @@
-# Introduction
 
 Gratitude is a powerful force that can transform your life. By cultivating a mindset of gratitude, you can increase your happiness, improve your relationships, and experience greater fulfillment in all areas of your life.
 

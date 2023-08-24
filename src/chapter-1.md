@@ -1,5 +1,3 @@
-Introduction
-============
 
 Gratitude is a powerful emotion that can transform our lives and bring greater happiness and fulfillment. In this book, "The Power of Gratitude: How to Cultivate a Joyful and Fulfilling Life," we will explore the transformative power of gratitude and how it can improve our mental health and overall well-being.
 

@@ -1,5 +1,3 @@
-Chapter 5: Practicing Self-Gratitude and Self-Love
-==================================================
 
 In this chapter, we will explore the importance of self-gratitude and self-love in improving self-esteem and overall well-being. We'll also provide techniques for showing gratitude and love to oneself and strategies for overcoming negative self-talk and limiting beliefs.
 

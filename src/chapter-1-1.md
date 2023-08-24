@@ -1,5 +1,3 @@
-Explanation of the Importance of Gratitude in Improving Mental Health and Well-being
-===============================================================================================
 
 In this chapter, we will explore the profound impact that gratitude can have on our mental health and overall well-being. Gratitude is a powerful emotion that, when cultivated, can bring about a sense of joy, contentment, and fulfillment in our lives.
 

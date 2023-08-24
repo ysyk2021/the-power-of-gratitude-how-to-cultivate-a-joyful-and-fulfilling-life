@@ -1,5 +1,3 @@
-The Importance of Spreading Gratitude and Positivity to Others in Creating a Better World
-==================================================================================================
 
 In this chapter, we will explore the significance of spreading gratitude and positivity to others as a means of creating a better world. We will delve into the profound impact such actions can have on individuals, communities, and society as a whole. Let's explore the importance of spreading gratitude and positivity:
 

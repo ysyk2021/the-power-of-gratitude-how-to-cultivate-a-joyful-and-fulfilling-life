@@ -1,5 +1,3 @@
-Chapter 2: Cultivating a Gratitude Practice
-===========================================
 
 In this chapter, we will explore the role of daily gratitude practice in cultivating a more joyful and fulfilling life. We will also discuss techniques for incorporating gratitude into daily routines and rituals, as well as strategies for staying consistent and making gratitude a habit.
 

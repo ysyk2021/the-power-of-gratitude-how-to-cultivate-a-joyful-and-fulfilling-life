@@ -1,5 +1,3 @@
-Chapter 3: Expressing Gratitude to Others
-=========================================
 
 In this chapter, we will explore the importance of expressing gratitude to others in improving relationships and well-being. We will also discuss techniques for showing gratitude to loved ones, colleagues, and strangers, as well as tips for practicing empathy and kindness in daily life.
 

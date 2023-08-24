@@ -1,5 +1,3 @@
-Chapter 6: Spreading Gratitude and Positivity to Others
-=======================================================
 
 In this chapter, we will explore the importance of spreading gratitude and positivity to others, techniques for sharing gratitude with others, and tips for inspiring others to cultivate a gratitude practice.
 

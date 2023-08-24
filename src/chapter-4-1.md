@@ -1,4 +1,3 @@
-# The Importance of Expressing Gratitude to Others in Improving Relationships and Well-being
 
 In our journey towards a joyful and fulfilling life, expressing gratitude to others holds immense power. The act of acknowledging and appreciating the kindness, support, and positivity we receive from those around us not only strengthens our relationships but also enhances our overall well-being. In this chapter, we will explore the importance of expressing gratitude to others and how it can lead to profound positive changes in our lives.
 

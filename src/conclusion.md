@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we have explored the power of gratitude and its ability to cultivate a more joyful and fulfilling life. We have examined the benefits of practicing gratitude, both for ourselves and for those around us, and provided practical tips and exercises for incorporating gratitude into our daily lives.
 

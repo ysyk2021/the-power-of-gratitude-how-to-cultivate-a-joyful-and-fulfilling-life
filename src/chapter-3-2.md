@@ -1,5 +1,3 @@
-Techniques for Incorporating Gratitude into Daily Routines and Rituals
-===============================================================================
 
 In this chapter, we will explore various techniques for seamlessly incorporating gratitude into our daily routines and rituals. By infusing gratitude into our everyday activities, we can cultivate a joyful and fulfilling life filled with appreciation and positivity.
 
